@@ -4,7 +4,7 @@ title: About
 permalink: /about/
 ---
 
-## Sooke locals With deep radio experience
+## Deep radio experience in and for the Sooke Community
 
 
 We all live in Sooke, and have all worked as DJs and content creators on radio in Canada and globally.
