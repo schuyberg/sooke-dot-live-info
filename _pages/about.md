@@ -19,7 +19,7 @@ We all live in Sooke, and have all worked as DJs and content creators on radio i
 **Sue** helped start Montreal’s first community radio station; Was a CBC host, reporter and producer for 20 years; founding member of Cafe Vosino Co-op. As our **Policy Lead** she will guide licensing, content regulations, incorporating as a non-profit, and policy creation.
 
 
-**...And you?!** We're actively seeking community members interested in helping us grow our fledgling organization. We are currently seeking motivated inviduals who can donate a few hours a week to help with book-keeping, social-media marketing, and building our web-infrastructure - if this describes you, please join us on [Discord](https://discord.gg/DvuMjBME) and introduce yourself!
+**...And you?!** We're actively seeking community members interested in helping us grow our fledgling organization. We are currently seeking motivated inviduals who can donate a few hours a week to help with book-keeping, social-media marketing, and building our web-infrastructure - if this describes you, please **join us on [Discord](https://discord.gg/gWwQvrDs29) and introduce yourself!**
 
 
 ## Sponsors
